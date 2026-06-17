@@ -1,2 +1,0 @@
-# GG-ONLINE-DUCRA
-Tv
